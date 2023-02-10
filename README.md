@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **shukyurov.oleg@gmail.com**
 
-- ⚡ Fun fact **I hate coffee but love Java🤔**
+- ⚡ Fun fact **I need to see mountains periodically otherwise I start to feel sad😔**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
